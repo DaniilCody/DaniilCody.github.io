@@ -1,3 +1,5 @@
 # DaniilCody.github.io
 
-Moin Leute
+WEBSITE UNDER CONSTRUCTION
+
+DANIIL GOLEVTSOV
